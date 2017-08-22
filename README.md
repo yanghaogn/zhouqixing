@@ -17,6 +17,6 @@
  
  [最少时间赚更多钱的秘密](http://blog.sina.com.cn/s/blog_4652e8800102welx.html)
  
- [一篇被转疯的股市高手的体悟，字字千金！](https://mp.weixin.qq.com/s?__biz=MzA5MjE3ODgzNA==&mid=2652230975&idx=1&sn=6e818c15804c10609ab49a9e72104ddc&scene=0#rd)
+ [一篇被转疯的股市高手的体悟，字字千金！](https://mp.weixin.qq.com/s?__biz=MzA5MjE3ODgzNA==&mid=2652230975&idx=1&sn=6e818c15804c10609ab49a9e72104ddc)
 ## 好书
 [论势](https://book.douban.com/subject/3692842/)

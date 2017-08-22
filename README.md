@@ -12,5 +12,11 @@
  - [（第二部分）](http://blog.sina.cn/dpool/blog/s/blog_54a832620102uzqg.html?wm=3049_a111)
  
  [段永平:投资不怕集中 不是一般的集中而是绝对的集中](http://blog.sina.cn/dpool/blog/s/blog_605241740102wfdy.html?from=timeline&isappinstalled=0)
+ 
+ [为什么中国人的收入差距在持续恶化？](http://finance.qq.com/a/20160201/007967.htm)
+ 
+ [最少时间赚更多钱的秘密](http://blog.sina.com.cn/s/blog_4652e8800102welx.html)
+ 
+ [一篇被转疯的股市高手的体悟，字字千金！](https://mp.weixin.qq.com/s?__biz=MzA5MjE3ODgzNA==&mid=2652230975&idx=1&sn=6e818c15804c10609ab49a9e72104ddc&scene=0#rd)
 ## 好书
 [论势](https://book.douban.com/subject/3692842/)

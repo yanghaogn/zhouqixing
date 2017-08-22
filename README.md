@@ -10,5 +10,7 @@
 中国A股白皮书——看这20年股市，兼谈10年10倍股，赚看得见的利润
  - [（第一部分）](http://blog.sina.cn/dpool/blog/s/blog_54a832620102uyvj.html?vt=4&wm=3049_a111)
  - [（第二部分）](http://blog.sina.cn/dpool/blog/s/blog_54a832620102uzqg.html?wm=3049_a111)
+ 
+ [段永平:投资不怕集中 不是一般的集中而是绝对的集中](http://blog.sina.cn/dpool/blog/s/blog_605241740102wfdy.html?from=timeline&isappinstalled=0)
 ## 好书
 [论势](https://book.douban.com/subject/3692842/)

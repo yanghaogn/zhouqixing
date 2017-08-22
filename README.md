@@ -7,6 +7,8 @@
 
 [收入不起眼却攒钱投资积累下数百万财产，引人深思](http://info.3g.qq.com/g/s?sid=&aid=money_ss&id=money_20170304A003OW&pos=&pid=1&lpid=1&day=&rt=2&iF=1&fr=)
 
-[中国A股白皮书——看这20年股市，兼谈10年10倍股，赚看得见的利润（第一部分）](http://blog.sina.cn/dpool/blog/s/blog_54a832620102uyvj.html?vt=4&wm=3049_a111)
+中国A股白皮书——看这20年股市，兼谈10年10倍股，赚看得见的利润
+ - [（第一部分）](http://blog.sina.cn/dpool/blog/s/blog_54a832620102uyvj.html?vt=4&wm=3049_a111)
+ - [（第二部分）](http://blog.sina.cn/dpool/blog/s/blog_54a832620102uzqg.html?wm=3049_a111)
 ## 好书
 [论势](https://book.douban.com/subject/3692842/)

@@ -25,3 +25,4 @@
  
 ## 好书
 [论势](https://book.douban.com/subject/3692842/)
+[股票大作手回忆录](https://book.douban.com/subject/5382213/)

@@ -19,7 +19,7 @@
  
  [一篇被转疯的股市高手的体悟，字字千金！](https://mp.weixin.qq.com/s?__biz=MzA5MjE3ODgzNA==&mid=2652230975&idx=1&sn=6e818c15804c10609ab49a9e72104ddc)
  
- ## 选股
+## 选股
  
  [给你五分钟，搞定那条叫“股市”的狗](http://mp.weixin.qq.com/s/amQxQj48KxVybusG2WAVlg)
  
